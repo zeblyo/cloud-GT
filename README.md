@@ -1,0 +1,2 @@
+适配GRANDTOURINGVIP[ST23.6.28] GRANDTOURINGVIP[2TV3.8] (云端更新) 
+注：载入的文件时小概率会错误重新载入即可
